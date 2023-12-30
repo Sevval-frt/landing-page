@@ -1,0 +1,1 @@
+Sadece tasarım projesidir.
